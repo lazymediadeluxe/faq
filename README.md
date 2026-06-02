@@ -1,1 +1,1 @@
-# faq
+# LazyMedia Deluxe
